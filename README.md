@@ -95,3 +95,11 @@ Usage of the works is permitted provided that this instrument is retained with t
 DISCLAIMER: THE WORKS ARE WITHOUT WARRANTY.
 
 Special thanks to CMIYK competition and hashes.org for test data.
+
+
+</BR>
+
+<a href="https://golden-farm.biz/?r=1673249" target="_blank">
+<img src="https://golden-farm.biz/images/promo/en/728x90.gif"
+alt="Profit every 10 minutes!"></a>
+
